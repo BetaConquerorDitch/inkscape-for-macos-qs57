@@ -1,4 +1,4 @@
-
+Get the ultimate Gimp for macOS preset with Gimp for macOS new Preset - AI-assisted design and gradient maps. Featuring AI-assisted design and gradient maps, it's the best choice
 
 
 
